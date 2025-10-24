@@ -33,7 +33,7 @@ Responsabilidad • Trabajo en equipo • Comunicación asertiva • Adaptabilid
 
 Ecommerce basado en la venta de diferentes tipos de cafe
 
-📫 Contacto
+📫 Contacto: 323-333-8603
 
 📧 Correo: jeffrey232008suarez@gmail.com
 
